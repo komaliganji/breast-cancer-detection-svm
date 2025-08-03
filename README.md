@@ -111,6 +111,5 @@ To conclude i would like to say that Machine Learning has inspired me for doing 
 
 Finally thanks for having me with you for quiet a lot of your precious time hope to see you next with real goods stuffs ahead , feel free to connect with me I WON'T BITE and would love collaborating with you,you can find my contact information in my Github Profile only.
 
-Also if you enjoyed this and you are not a sadist then dont forget to leave a star, you know those star and Green square really satisfy me :)
 
 Until we Meet Next HAPPY LEARNING ❤️.
